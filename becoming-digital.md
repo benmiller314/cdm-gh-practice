@@ -7,4 +7,8 @@ When the world was only analog, puppies roamed freely. Frolicking thorugh fields
 When the world was only analog, I was but a child. I never knew what the future held, but I knew we needed files.
 
 When the world was only analog,
+There was no knowledge. There was no joy.
+
+When the world was only analog,
 I would set a list of things I want to achieve, and make all the things into a way I hope it to be.
+
