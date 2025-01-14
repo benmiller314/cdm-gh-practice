@@ -1,6 +1,14 @@
 ## Becoming digital
 
-When the world was only analog, puppies roamed freely. Frolicking thorugh fields, and eating all of the treats they could ever ask for. It was a simpler time. Years later, cats came to destroy everything they once knew.
+
+When the world was only analog, people lived in the moment, not rushing through life. 
+Letters took time to send, photos were printed and held in your hands, and talks 
+were face-to-face without distractions. Life was slower, 
+and every moment felt more real and special.
+
+When the world was only analog, puppies roamed freely. Frolicking thorugh fields, and eating 
+all of the treats they could ever ask for. It was a simpler time. 
+Years later, cats came to destroy everything they once knew.
 
 When the world was only analog, I was but a child. I never knew what the future held, but I knew we needed files.
 
